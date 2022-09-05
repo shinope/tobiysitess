@@ -1,1 +1,0 @@
-# shinope.github.io
